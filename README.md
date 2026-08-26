@@ -1,4 +1,4 @@
-# Hey guys! I'm Kevin Turcios here are some things to know about me :)
+**Hey guys! I'm Kevin Turcios here are some things to know about me.**
 
 1. I’m currently working on school, full-time job and being a father.
 2. I am also currently remodeling one of my bathrooms at my home, next we will be building a tiny home in the backyard.
